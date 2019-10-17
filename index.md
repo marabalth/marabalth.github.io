@@ -1,0 +1,1 @@
+Welche Faktoren beeinflussennschen in ihren Entscheidungen und wie wehren Individuen diese Manipulation effizient ab?

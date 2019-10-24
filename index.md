@@ -8,7 +8,7 @@ Im Folgenden werden die sechs Waffen der Einflussnahme nach Robert Cialdini gena
 Im Folgenden werden sechs Möglichkeiten zur Beeinflussung genauer erläutert.
  
 Abbildung 1: Waffen der Einflussnahme
-Quelle: eigene Darstellung
+Quelle: eigene Darstellung  
 
 2.1 Reziprozität
 Die erste Möglichkeit ist die Reziprozitätsregel und besagt, dass Individuen, die etwas bekommen, sich verpflichtet fühlen sich dafür erkenntlich zu zeigen und als Revanche etwas zurückgeben wollen. Für Menschen ist es unangenehm in der Schuld anderer zu stehen, woraus sich Schuldgefühle entwickeln und diese durch eine Gegenleistung ausgeglichen werden sollen (Cialdini, 2010, S. 44-45). Dieses Verhalten lässt sich auf den Sozialisationsprozess zurückführen sowie die Tatsache, dass Menschen instinktiv versuchen Konflikten auszuweichen (Werner, 2018, S. 1).
